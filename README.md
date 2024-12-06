@@ -22,9 +22,9 @@ MasterClass is offering an exclusive 15% discount on MasterClass subscriptions. 
 
 Take advantage of the [30-day money-back guarantee](https://bit.ly/3wGN7UM). If you're not satisfied within the first month, simply cancel your subscription and get a full refund no questions asked.
 
-## Get 60% OFF on MasterClass Premium
+## Get 30% OFF on MasterClass Premium
 
-You can save up to $60% i.e., [$600](https://bit.ly/3wGN7UM), on Masterclass annually. Also, have access to the platform on six devices in total and enjoy premium offline viewing and more.
+You can save up to $30% i.e., [$300](https://bit.ly/3wGN7UM), on Masterclass annually. Also, have access to the platform on six devices in total and enjoy premium offline viewing and more.
 
 ## How To Get Your MasterClass Discount? [December 2024]
 
